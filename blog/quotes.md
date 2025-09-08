@@ -12,3 +12,5 @@
 
 > *"In pure capitalism, Investment advice is a contradiction in itself"*
 
+> *"In a number of ocassions, financial success can be achieved by doing exactly the opposite to what most other people do"*
+
